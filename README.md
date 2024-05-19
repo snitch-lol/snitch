@@ -1,1 +1,1 @@
-# snitch
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6E09F7&background=FFFFFF00&center=true&multiline=true&repeat=false&random=false&width=435&lines=snitch.lol;private+bio+link;discord.gg%2Fsnitchbio" alt="Typing SVG" /></a>
